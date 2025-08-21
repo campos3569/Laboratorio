@@ -1,2 +1,0 @@
-# Laboratorio
-vamos a valer
